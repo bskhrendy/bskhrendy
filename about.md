@@ -2,7 +2,7 @@
 - 👀 I’m interested in digital marketing
 - 🌱 I’m currently learning technical seo
 - 💞️ I’m looking to collaborate on seo or digital marketing project
-- 📫 How to reach me: r3ndy@2394@gmail.com
+- 📫 How to reach me: r3ndy.2394@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Some people called me "unique man" because of my fun personalities but could drive to impactful marketing strategy. 
 
